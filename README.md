@@ -10,5 +10,5 @@ ALSO GAME WILL BE IN A TORRENT USE [FDM](https://freedownloadmanager.org) link t
 
 ### 💬 Join the Community / Feedback
 Have questions or want to help test the translation? Reach out here:
-* **Discord User:** `YOUR_DISCORD_USERNAME`
+* **Discord User:** `Makoto12311`
 * **Discord Server:** [Click here to join our server](https://discord.gg/hzHPuk7C8y)
