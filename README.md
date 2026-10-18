@@ -5,6 +5,7 @@ Hey guys! So basically, I made a Cross Days English patch for you all. I'm going
 🎥[Watch the Video Tutorial on YouTube](https://www.youtube.com/watch?v=zJ_I7pwNmQY)
 
 
+
 📥[Download Game File via MediaFire](https://www.mediafire.com/file/6qz24304nwm6tww/CrossDays.rar/file)
 
 ### 💬 Join the Community / Feedback
